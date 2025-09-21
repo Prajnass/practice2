@@ -1,2 +1,2 @@
-my name is prajna s s
+my name is prajna s
 hello

@@ -1,2 +1,2 @@
-my name is pruthvi j padpu / sathvi
+my name is pruthvi j
 hi
